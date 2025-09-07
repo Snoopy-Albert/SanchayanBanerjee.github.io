@@ -1,1 +1,1 @@
-# SanchayanBanerjee.github.io
+# sanchayan-banerjee.github.io
